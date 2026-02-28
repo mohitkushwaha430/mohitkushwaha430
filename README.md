@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning **Full stack development**
 
-- 📫 How to reach me **mohitkush8085@gmail.com**
+- 📫 How to reach me **mohitkus2024@gmail.com**
 
 - ⚡ Fun fact **Yess i can do it .....**
 
